@@ -1,4 +1,4 @@
-🎮 **Split Fiction – Dive Into a Mind-Bending Co-Op Adventure!** 🌀
+# 🎮 Split Fiction Dive Into a Mind-Bending Co-Op Adventure! 🌀
 
 ![capsule_616x353](https://github.com/user-attachments/assets/075740e9-7d2d-431b-9761-fadcbb5db961)
 
